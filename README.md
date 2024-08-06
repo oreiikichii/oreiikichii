@@ -7,6 +7,7 @@
 
 # things im interested in .
 <p> the persona series ,, p3p specifically. also . not persona but smt5v !
+<p> chainsaw man ,,, power + asa r my fav rns but i also like quanxi and her girls alot.
 <p> naruto + shippuen ,,, the uzumaki and uchiha clans specifically ,,,
 <p> bnha ! togachako and generally the league !!
 <p> mob psycho !!! estrogen could save literally all of them
@@ -34,3 +35,4 @@ etc ponies
 ![image](https://github.com/user-attachments/assets/66154cd1-ed89-4ace-8a1f-63bb12a267f1)
 
 ![c18hze](https://github.com/user-attachments/assets/2725c6b9-eed0-46cb-a9de-7d9bc371cf56)
+s
