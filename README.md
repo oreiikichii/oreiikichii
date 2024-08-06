@@ -19,7 +19,6 @@
 # my ponies .
 <p>see these better [and more up to date] on https://mitsudori.carrd.co !</p>
 
-personal ponies
 
 ![image](https://github.com/user-attachments/assets/d8214d9b-9999-4501-9b9b-62d423c645cc) 
 
