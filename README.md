@@ -17,6 +17,7 @@
 ![c18hze](https://github.com/user-attachments/assets/2725c6b9-eed0-46cb-a9de-7d9bc371cf56)
 
 # my ponies .
+<p>see these better [and more up to date] on https://mitsudori.carrd.co !</p>
 
 personal ponies
 
